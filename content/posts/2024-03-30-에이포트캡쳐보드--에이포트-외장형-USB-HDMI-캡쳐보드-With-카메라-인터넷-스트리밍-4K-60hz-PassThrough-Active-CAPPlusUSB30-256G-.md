@@ -1,11 +1,10 @@
 ---
-title: "에이포트캡쳐보드  [10~50대 여성추천]  에이포트 외장형 USB HDMI 캡쳐보드 With 카메라 인터넷 스트리밍 4K 60hz Pass-Through, Activ 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '에이포트캡쳐보드  [10~50대 여성추천]  에이포트 외장형 USB HDMI 캡쳐보드 With 카메라 인터넷 스트리밍 4K 60hz Pass-Through, Activ 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-30
-slug: "에이포트캡쳐보드--에이포트-외장형-USB-HDMI-캡쳐보드-With-카메라-인터넷-스트리밍-4K-60hz-PassThrough-Active-CAPPlusUSB30-256G-"
-author: Moon
+slug: '에이포트캡쳐보드--에이포트-외장형-USB-HDMI-캡쳐보드-With-카메라-인터넷-스트리밍-4K-60hz-PassThrough-Active-CAPPlusUSB30-256G-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, 에이포트캡쳐보드]
----
 
 ## 에어포트캡쳐보드: 휴대편안함과 뛰어난 기능성을 완벽하게 조화
 

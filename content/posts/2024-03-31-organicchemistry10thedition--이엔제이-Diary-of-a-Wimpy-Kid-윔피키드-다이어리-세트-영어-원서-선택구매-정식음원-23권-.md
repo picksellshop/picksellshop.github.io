@@ -1,11 +1,10 @@
 ---
-title: "organicchemistry10thedition  | [이엔제이] Diary of a Wimpy Kid 윔피키드 다이어리 세트 영어 원서 선택구매 정식음원, 23권  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: 'organicchemistry10thedition  | [이엔제이] Diary of a Wimpy Kid 윔피키드 다이어리 세트 영어 원서 선택구매 정식음원, 23권  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-31
-slug: "organicchemistry10thedition--이엔제이-Diary-of-a-Wimpy-Kid-윔피키드-다이어리-세트-영어-원서-선택구매-정식음원-23권-"
-author: Moon
+slug: 'organicchemistry10thedition--이엔제이-Diary-of-a-Wimpy-Kid-윔피키드-다이어리-세트-영어-원서-선택구매-정식음원-23권-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, organicchemistry10thedition]
----
 
 **有机化学 10판: 학생에게 권장되는 텍스트**
 

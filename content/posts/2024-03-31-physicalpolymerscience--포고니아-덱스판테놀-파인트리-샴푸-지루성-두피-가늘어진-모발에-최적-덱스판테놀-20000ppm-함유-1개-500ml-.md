@@ -1,11 +1,10 @@
 ---
-title: "physicalpolymerscience  | 포고니아 덱스판테놀 파인트리 샴푸 지루성 두피/ 가늘어진 모발에 최적 덱스판테놀 20000ppm 함유, 1개, 500ml  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: 'physicalpolymerscience  | 포고니아 덱스판테놀 파인트리 샴푸 지루성 두피/ 가늘어진 모발에 최적 덱스판테놀 20000ppm 함유, 1개, 500ml  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-31
-slug: "physicalpolymerscience--포고니아-덱스판테놀-파인트리-샴푸-지루성-두피-가늘어진-모발에-최적-덱스판테놀-20000ppm-함유-1개-500ml-"
-author: Moon
+slug: 'physicalpolymerscience--포고니아-덱스판테놀-파인트리-샴푸-지루성-두피-가늘어진-모발에-최적-덱스판테놀-20000ppm-함유-1개-500ml-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, physicalpolymerscience]
----
 
 ## 물리적 고분자 과학을 마스터하세요!
 

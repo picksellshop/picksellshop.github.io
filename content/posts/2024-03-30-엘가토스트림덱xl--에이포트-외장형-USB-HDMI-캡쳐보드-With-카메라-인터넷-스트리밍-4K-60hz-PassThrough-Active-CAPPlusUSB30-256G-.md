@@ -1,11 +1,10 @@
 ---
-title: "엘가토스트림덱xl  [10~50대 여성추천]  에이포트 외장형 USB HDMI 캡쳐보드 With 카메라 인터넷 스트리밍 4K 60hz Pass-Through, Activ 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '엘가토스트림덱xl  [10~50대 여성추천]  에이포트 외장형 USB HDMI 캡쳐보드 With 카메라 인터넷 스트리밍 4K 60hz Pass-Through, Activ 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-30
-slug: "엘가토스트림덱xl--에이포트-외장형-USB-HDMI-캡쳐보드-With-카메라-인터넷-스트리밍-4K-60hz-PassThrough-Active-CAPPlusUSB30-256G-"
-author: Moon
+slug: '엘가토스트림덱xl--에이포트-외장형-USB-HDMI-캡쳐보드-With-카메라-인터넷-스트리밍-4K-60hz-PassThrough-Active-CAPPlusUSB30-256G-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, 엘가토스트림덱xl]
----
 
 **엘가토 스트림덱 XL: 스트리머와 콘텐츠 크리에이터를 위한 궁극의 제어 패널**
 
