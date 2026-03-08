@@ -3,8 +3,9 @@ title: 'fundamentalsofappliedelectromagnetics8thedition  | [이엔제이] 울티
 date: 2024-03-31
 slug: 'fundamentalsofappliedelectromagnetics8thedition--이엔제이-울티메이트-페파피그-영어원서-The-Peppa-Pig50권세트-음원제공-'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, fundamentalsofappliedelectromagnetics8thedition]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'fundamentalsofappliedelectromagnetics8thedition']
+---
 
 **Fundamentals of Applied Electromagnetics 8th Edition: 필수 전자기학 서적**
 

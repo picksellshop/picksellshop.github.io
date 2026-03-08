@@ -3,8 +3,9 @@ title: 'digitalsignalprocessingfirst(globaledition)  | The 21st Century Pro Meth
 date: 2024-03-31
 slug: 'digitalsignalprocessingfirstglobaledition--The-21st-Century-Pro-Method-Classical--Fingerstyle-Guitar-Traditional-And-Beyond-CD포함-'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, digitalsignalprocessingfirst(globaledition)]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'digitalsignalprocessingfirst(globaledition)']
+---
 
 **디지털 신호 처리의 필수 가이드**
 

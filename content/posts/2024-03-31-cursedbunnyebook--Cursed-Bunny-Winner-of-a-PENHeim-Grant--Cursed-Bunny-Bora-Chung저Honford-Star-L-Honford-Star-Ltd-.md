@@ -3,8 +3,9 @@ title: 'cursedbunnyebook  | Cursed Bunny:* Winner of a PEN/Heim Grant *, Cursed 
 date: 2024-03-31
 slug: 'cursedbunnyebook--Cursed-Bunny-Winner-of-a-PENHeim-Grant--Cursed-Bunny-Bora-Chung저Honford-Star-L-Honford-Star-Ltd-'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, cursedbunnyebook]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'cursedbunnyebook']
+---
 
 ### 이번 주말에 꼭 읽어야 할 섬뜩한 eBook, "Cursed Bunny"
 

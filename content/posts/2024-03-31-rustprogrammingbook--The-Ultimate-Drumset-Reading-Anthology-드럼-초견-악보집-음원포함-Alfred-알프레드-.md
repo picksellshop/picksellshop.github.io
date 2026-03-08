@@ -3,8 +3,9 @@ title: 'rustprogrammingbook  | The Ultimate Drumset Reading Anthology 드럼 초
 date: 2024-03-31
 slug: 'rustprogrammingbook--The-Ultimate-Drumset-Reading-Anthology-드럼-초견-악보집-음원포함-Alfred-알프레드-'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, rustprogrammingbook]
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'rustprogrammingbook']
+---
 
 **Rust Programming Book: 프로그래밍의 미래로의 안내서**
 
